@@ -1,0 +1,6 @@
+---
+title: The Good Wizard's Castle
+author: Judy Day
+language: en-US
+cover-image: illustrations/deer-in-the-woods.png
+...

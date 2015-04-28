@@ -1,0 +1,16 @@
+#Chapter 19#
+##Magic Happens##
+
+The next day Oscar got up very, very early. He just couldn’t sleep any longer and hadn’t slept well all night. It was very bright outside. The sun shone and there was hardly a cloud in the sky. That made him feel a little better. He was restless. Waiting to hear from the Sisters was so very hard. He was happy that he had the animals to love and care for. He gave them breakfast. He tried to eat his but it just wouldn’t go down.
+
+Oscar had a few chores to do and then he had to go in town to visit a patient who was getting better and better. That would make him feel better, too! He was always glad he was able to use his medical skills to help those couldn’t afford to pay for proper care. Taking care of the chores went rapidly and when he visited his patient he was continuing to improve.
+
+Oscar decided to take the dogs to Otter Pond. The coming of spring always reminded Oscar of faith and new beginnings. But the pond also reminded him of Jay and how worried he was about the Sister’s decision and also about Jay. He tried to think about believing but that just wasn’t working well. Bleakness kept creeping in between the spring beauty and Oscar’s gladness about his patient. Still, he knew that things could change in a blink of an eye. “Patience, patience,” he said to himself and to the dogs as they headed back to the house. They had not been themselves at all. He knew they must be worried and upset, too.
+
+Magic happens over and over. Sometimes we don’t see it and sometimes we don’t understand it right away—but it most certainly does happen. Early that afternoon, Merlin said to Snowy, “I know magic is going to happen soon, good things. I can just feel it.” As soon as he said that the clocks began to chime and bong at once. BONG, BONG, BONG and chime, chime they went merrily. As soon as that happened the phone rang. It was Sister Marian and Oscar could tell by her voice that something was different. She said that after thinking long and hard and talking with their superiors, they had decided that for Jay’s wellbeing and safety, they should let him come to the castle every weekend and see how that went before talking anymore about actual adoption. He could start right away.
+
+Oscar hung up the phone and let out a whoop and then another whoop! The dogs began running around in circles and yelping. The cats all sat on the couch and started to clean their fur. Suddenly Feather appeared outside the window and began to Hoot, Hoot, HOOT, HOOT and blink his eyes. “From the way you are behaving, I guess I don’t have to tell all of you that it was very good news. Jay can start staying with us on weekends and then, if things go well, which they will, we can adopt Jay. We will all care for him and he will care for all of us. This is so very wonderful, so very wonderful. I can hardly think how to explain how joyful I feel! Yes, yes. It is so wonderful,” he said and bent down to
+
+pat Snowy and Merlin who could not stop running in circles.
+
+All in all, it was as though the whole castle was filled with springtime joy! Behind a tree the toes of black boots could be seen poking out athe shadows of boney hands clapping could be seen and the clicking of someone’s fingers could be heard. Sparks flew from the trees!!
