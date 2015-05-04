@@ -37,9 +37,7 @@ The second present was in a small box. When Jay opened it he saw a beautiful gol
 
 “Oh my, oh my,” said Oscar. "That is the same picture of the wolves as the one over the front entrance. Who could have given this to you? It is so beautiful. Does it fit?”
 
-“I don’t know,” said Jay, touching it over and over. "It is just so beautiful.
-
-It reminds me of the story of the white wolves. Look how it shines! Do you think it can really be mine? It jjjust can’t be, can it?”
+“I don’t know,” said Jay, touching it over and over. "It is just so beautiful. It reminds me of the story of the white wolves. Look how it shines! Do you think it can really be mine? It jjjust can’t be, can it?”
 
 “Slip it on,” said Oscar. It was much too big for his finger.
 

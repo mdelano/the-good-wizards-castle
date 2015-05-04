@@ -31,7 +31,7 @@ a lot when you don’t even know that I am there!”
 
 Jay hung on as tightly as he could to the cloak, which was a kind of dark brown gray like the bark of the trees. That must be why it is so easy for Myrr to hide in the trees, thought Jay. Just as the wizard had told him, Jay jumped when the wizard jumped. Sparkles flew from his cloak and in no time his black cracked leather boots with the giant buckles, landed on the top branch of a very old pine
 
-tree. Right next to them sat a Snowy Owl that said Hoot Hoot!! as they landed. He also fluffed his feathers out just a bit. “Don’t be frightened, oh beautiful owl. You look sort of like Feather, but I know you are not. We will not hurt you, I promise. You may know the wizard, anyway, so you know you will be safe with us."
+tree. Right next to them sat a Barred Owl that said, "Hoot Hoot!!" as they landed. He also fluffed his feathers out just a bit. “Don’t be frightened, oh beautiful owl. You look sort of like Feather, but I know you are not. We will not hurt you, I promise. You may know the wizard, anyway, so you know you will be safe with us."
 
 The wizard looked at the owl and said, “Hello, Jay. It is so nice to see you.” HOOT, HOOT said the owl making his feathers sleek once again. “Are you watching the white wolves, too?” asked Myr. "HOOOOOT, HOOT!" said the owl blinking his eyes.
 

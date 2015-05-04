@@ -18,7 +18,7 @@ The truck chugged into the castle driveway. Jay jumped out; Oscar jumped out; an
 
 “Yes," said Oscar, brushing all of the snow off of the tree and getting it ready to bring into the house. Snowy was staring at it and pacing around in her excitement. It was Merlin’s very first Christmas tree ever. When he saw that Oscar was bringing it into the house he became very confused. A tree in the house, he thought?
 
-“Come help me Jay, Oscar said with a chuckle. This tree is so large we are going to have trouble getting it through the castle door!”
+“Come help me Jay," Oscar said with a chuckle. "This tree is so large we are going to have trouble getting it through the castle door!”
 
 Oscar opened the door. He and Jay put all of their strength together.
 
@@ -50,7 +50,7 @@ Since the tree was done, Oscar made the hot chocolate that Jay liked so much and
 
 Sooner than possible it was time for Jay to head back to the orphanage. Oscar and the dogs took him in the truck. He thanked and thanked Oscar for the wonderful day. Oscar said he must come again. The dogs kissed him goodbye and put their tails down when they realized he was gone.
 
-Later that night when Jay was cozy in his bed, he thought about the day. It had been a wonderful day. He started to cry—very quietly so the others in the orphanage would not hear him. “I wish, I wish upon a star", he said. "I wish I could live in the castle with Oscar and the animals. I wish this would happen so much that it is making me cry. I don’t want anyone to see me cry, though. I have always known I wanted a family, but now I know that I want to be part of this
+Later that night when Jay was cozy in his bed, he thought about the day. It had been a wonderful day. He started to cry—very quietly so the others in the orphanage would not hear him. “I wish, I wish upon a star," he said. "I wish I could live in the castle with Oscar and the animals. I wish this would happen so much that it is making me cry. I don’t want anyone to see me cry, though. I have always known I wanted a family, but now I know that I want to be part of this
 
 family! I am eight years old. I don’t know if I will ever know about my real family. I want to love and be loved. That is what makes a real family. The next time I see the wizard I am going to tell him my wish. I think he will help me. Then I am just going to believe as hard as I can!” Upset as he was, his eyes closed and he was asleep dreaming of flying with dogs.
 

@@ -2,5 +2,11 @@
 title: The Good Wizard's Castle
 author: Judy Day
 language: en-US
-cover-image: illustrations/deer-in-the-woods.png
+cover-image: illustrations/cover.jpg
+creator:
+- role: author
+  text: John Smith
+- role: editor
+  text: Sarah Jones
+rights: © 2007 John Smith, CC BY-NC
 ...

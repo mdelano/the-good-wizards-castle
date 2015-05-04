@@ -11,7 +11,7 @@ Once he had found his flashlight and a piece of paper and a crayon (he couldn’
 
 After a while Jay fell asleep with the flashlight in one hand and the crayon in the other. When he awoke up he was confused. Why was he holding a flashlight? Then he remembered what he was trying to do. Suddenly he knew just what to say and lickity split he wrote it on the paper in the thick letters that you make with a crayon. He signed the note, Love, Jay. He didn’t know where he was going to get an envelope but he thought maybe at school someone would give him one and help him to mail the letter.
 
-Jay got up again, ever so quietly, and placed the letter in his backpack. Then he slipped back into bed and immediately fell into a deep sleep. In his dreams he was, once again, flying through the sky. He was flying much higher than he had in the past. This time he were right up in the sky with the stars and the moon. He could see over the treetops and the sleigh bells were ringing and ringing. He was looking up at the sky and saying, “popsicle, popsicle. It was a wonderful dream.
+Jay got up again, ever so quietly, and placed the letter in his backpack. Then he slipped back into bed and immediately fell into a deep sleep. In his dreams he was, once again, flying through the sky. He was flying much higher than he had in the past. This time he were right up in the sky with the stars and the moon. He could see over the treetops and the sleigh bells were ringing and ringing. He was looking up at the sky and saying, “popsicle, popsicle." It was a wonderful dream.
 
 The next morning Jay awoke feeling much better. Taking action can sometimes help a lot. He headed off to school to complete his plan. At
 

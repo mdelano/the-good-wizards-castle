@@ -1,5 +1,5 @@
 #Chapter 6#
-##Two Gifts From the Woods##
+##Two Gifts from the Woods##
 
 “It is getting closer to Christmas,” Oscar said to the castle cats and dogs whom he had just finished feeding. The dogs were playing tug of war with a toy and the cats were all preening. As he walked through the living room he looked at his visitor, the owl. He looked at the owl that was immobilized because its wing was pinned to allow the break to heal. He had noticed the night before that Sky was sitting next to the owl. This must be an interesting owl for most would be afraid and get aggressive. This owl seems to know it is safe, he thought.
 
@@ -9,4 +9,4 @@ The cats lounged by the fire until Oscar came back downstairs. The castle window
 
 Feather watched from his warm window perch. He saw Oscar go into the carriage house. The dogs waited outside by the door.
 
-“I love Christmas and I love getting a Christmas tree, especially when we have lots of snow about", Oscar mused. "At Christmas I think of my parents and how much I loved them and how lucky I was to have had them to love and love me. I also think of the war. Everyone who goes to war comes back changed and I guess I did, too. The suffering seems to make me sad at this time with so much joy around. Still, I have learned how to empty my mind and not dwell on this
+“I love Christmas and I love getting a Christmas tree, especially when we have lots of snow about," Oscar mused. "At Christmas I think of my parents and how much I loved them and how lucky I was to have had them to love and love me. I also think of the war. Everyone who goes to war comes back changed and I guess I did, too. The suffering seems to make me sad at this time with so much joy around. Still, I have learned how to empty my mind and not dwell on this

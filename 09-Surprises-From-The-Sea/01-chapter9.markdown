@@ -1,5 +1,5 @@
 #Chapter 9#
-##Surprises From the Sea While Waiting for Christmas Day##
+##Surprises from the Sea While Waiting for Christmas Day##
 
 Everyone was still waiting for Christmas to come. Sometimes it just it just seemed to take forever. Snowy and Merlin were no exception. They couldn’t wait to see Jay and how happy he would be with this special Christmas. It was a beautiful day. The sky was bright blue with just a few fluffy white clouds that blocked out bits of the sun. There was no falling snow.
 
@@ -27,7 +27,7 @@ After the puppy and dog ran a little way, they turned into a short dirt driveway
 
 She looked up and noticed the other two dogs, dogs that, except for being bigger, looked almost exactly like Spirit. “Oh, hello to you, too," she said to the dogs. You must be a Samoyed too, and your little friend, well I am not sure what you are. How wonderful this is. I think you must live close by. Maybe you all will be friends and my Spirit and Dickon will be able to have friends to play with! This is just lovely!”
 
-Rose invited the dogs in and gave them all some water and some dog biscuits. They all licked each other and Snowy and Merlin set off again for the castle. Spirit and Dickon stayed behind. They looked up at her and Spirit seemed to give one of his Samoyed smiles, while Dickon just stared at her with his very blue eyes. “You must be so happy to have some friends", she said. "They must live on the other side of the woods where the castle is. I bet they will come back really soon to play with you. For now, let’s go in and get supper started. By the way, did you hear that huge horn sound, my Spirit and Dickon? I have never heard anything like it. It was like magic.”
+Rose invited the dogs in and gave them all some water and some dog biscuits. They all licked each other and Snowy and Merlin set off again for the castle. Spirit and Dickon stayed behind. They looked up at her and Spirit seemed to give one of his Samoyed smiles, while Dickon just stared at her with his very blue eyes. “You must be so happy to have some friends," she said. "They must live on the other side of the woods where the castle is. I bet they will come back really soon to play with you. For now, let’s go in and get supper started. By the way, did you hear that huge horn sound, my Spirit and Dickon? I have never heard anything like it. It was like magic.”
 
 Spirit and Dickon looked at each other and then they looked at her and wagged their tails furiously. Spirit gave her a smile, as Samoyeds so often do. He hoped Rose knew that they understood what she meant. It was a secret they shared with their new friends. Spirit hoped that they all could show Rose and the owner of the other dogs what the strange man had brought and placed beside the very large stone. He was sure that if they took Rose for a walk that she would see it also.
 

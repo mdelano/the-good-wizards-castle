@@ -2,7 +2,9 @@
 
 Once upon a time, deep in a pine-scented woods, stood a castle. The name of the castle was Castle Myrddin. Legend had it that the castle was built by a wizard who lived there for many years. Many claimed to have caught sight of him but no one could ever describe him. People said his name was Myrddin. But how did they know? It was said that Myrddin cast a spell on the castle. The spell allowed him to leave some of his special magic in the castle and woods forever and to this day anyone who goes near the castle senses the magic that is hovering. The castle was built on the coast of Maine in a very old town that was said to have been visited by the Vikings. It was situated to be directly under the North Star.
 
-A man named Oscar Olden lived in the castle. Oscar was a man in his late thirties. He was very tall and he had what artists sometimes call "chiseled features", and dark hair with just a touch of gray. He had the brightest blue-green eyes you could imagine. His eyes were as kind as his smile. Oscar rarely felt angry but when he did he became very quiet, his eyes lost their brightness and his face looked stony cold. Usually, his anger occurred when he believed someone had been unnecessarily hurt or when he witnessed injustice.
+![](illustrations/castle-1.jpg)
+
+A man named Oscar Olden lived in the castle. Oscar was a man in his late thirties. He was very tall and he had what artists sometimes call "chiseled features," and dark hair with just a touch of gray. He had the brightest blue-green eyes you could imagine. His eyes were as kind as his smile. Oscar rarely felt angry but when he did he became very quiet, his eyes lost their brightness and his face looked stony cold. Usually, his anger occurred when he believed someone had been unnecessarily hurt or when he witnessed injustice.
 
 Sometimes people noticed that Oscar had long, thin fingers, fingers that could be those of a pianist or a surgeon. In fact, Oscar studied to be a doctor, and he became a surgeon of some renown. However, during the time that he began to practice as a surgeon he was called to war. Oscar was changed by war as all people are. When he returned he decided that since he had inherited great wealth he would treat, without charge, those in town who could not afford such services. He loved doing this for he loved being a doctor and he loved being able to help others.
 
@@ -16,8 +18,6 @@ of the woods was the ocean. The castle was surrounded by gardens filled with flo
 
 Oscar’s parents worked and worked to make Castle Myrddin even more beautiful than it was when they bought it. They repaired and cleaned its many stained glass windows, carved wood, and stonework. They painted all the wonderful rooms that filled the castle each with a fireplace of its own and with beautiful views of the gardens and woods and the edge of the ocean. All that they did seemed to enhance the magical feeling of the castle.
 
-![](illustrations/deer-in-the-woods.png)
-
 The woods around the castle were inhabited by many kinds of animals who cared for each other. There were pairs of bluebirds, cardinals, woodpeckers, doves and especially owls. The owls sat almost invisible in the trees, day and night, watching over the woods. Sometimes during the day, if they thought there might be something evil lurking about in the woods, the owls would take flight to view the castle and the woods from above. At night, you would see their huge blinking eyes up in the trees.
 
 Deer pranced and danced and grazed in the magic castle woods most all of the day. They came to the edge of the castle woods and they watched and watched. Sometimes in the castle woods, if you looked very closely you might even see a very large butterfly riding on the back of one of the deer.
@@ -29,3 +29,5 @@ The stained glass window above the entry way door was a beautifully crafted pict
 One special bit of castle magic happened every night. At midnight, all the clocks chimed, bong, bong, bong even if they had not been wound. They had
 
 been known to ring out in the daytime, too, at odd hours, and always all at once. This was said to mean that something good was about to happen. Often the owls joined in and hooted in response to the clocks. When that happened it was like listening to a wonderful symphony that rang through the woods right down to the ocean.
+
+<div class="pagebreak"></div>

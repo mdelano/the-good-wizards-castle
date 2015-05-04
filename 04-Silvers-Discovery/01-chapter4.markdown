@@ -19,14 +19,14 @@ Silver knew that he had to find Oscar and let him know where the owl was but he 
 
 "Trust me, trust me" said Oscar in a kind and gentle voice. "I will have to move you into the castle. I will put a board under you so that we don't hurt the wing. "
 
-He ran to the barn and got a board. He went back to the bird and slid it under him. "Trust me, trust me", he repeated and the owl blinked his eyes at Oscar.
+He ran to the barn and got a board. He went back to the bird and slid it under him. "Trust me, trust me," he repeated and the owl blinked his eyes at Oscar.
 
-"You know", said Oscar, after the owl was safely on the board, "you are so very beautiful. I think you may be the head of the parliament of owls that live in the woods." The owl blinked over and over again. "Oh, the owls must be so worried about you, Mr. Owl.”
+"You know," said Oscar, after the owl was safely on the board, "you are so very beautiful. I think you may be the head of the parliament of owls that live in the woods." The owl blinked over and over again. "Oh, the owls must be so worried about you, Mr. Owl.”
 
 Oscar took the owl to his workroom in the castle. Here he kept his medical supplies. He tended to the owl's wing so that it could heal correctly.
 
 "Your are lucky, Mr. Owl, for this break will mend quite easily. We will just have to keep you still for a while and then once your wing mends we will try some exercises to get you strong enough to go back to the woods and your woods owls."
 
-Oscar placed the owl on the sill of the stained glass window in the room with the huge stone fireplace. "Now you will be warm and safe and you can look out the window at your woods. "I think I will call you Feather."
+Oscar placed the owl on the sill of the stained glass window in the room with the huge stone fireplace. "Now you will be warm and safe and you can look out the window at your woods. I think I will call you Feather."
 
 Oscar lit the fire in the fireplace so that the owl and the other animals would be warm for the evening. Snowy and Merlin had lain down on the rug and Silver was preening and cleaning and looking very proud. Amelia Bright was curled up asleep by the fire. Sky, the watcher, was sitting by the fireplace watching and watching the owl.

@@ -1,4 +1,4 @@
-#Chapter 1#
+###Chapter 1###
 ##Once Upon a Time in the Castle Woods##
 
 AND…Once upon a time there was a boy named John James. Everyone called him Jay. Jay had strawberry blond hair that shone in the sunshine and turquoise blue eyes that became very bright when he was excited. He had no freckles—though people with red hair often do. Jay was a thoughtful and quiet boy of eight. He lived in an orphanage that was on the border of the castle woods. He loved being outside in nature and especially loved the woods and the ocean.
@@ -15,9 +15,11 @@ Jay had figured out that if he went into the woods that were on the border of th
 
 Jay had been doing this for about six months so he had seen the castle from the spring to winter. Jay would stop at the place where he could watch the castle but not be seen (he was pretty sure). Jay knew from stories of the castle told by those who lived in town that a man named Oscar Olden who was a doctor owned it. He also knew that the castle had once belonged to the Wizard Myrddin who, it was commonly thought, still lived in the castle woods, though few claimed to ever have actually seen him. Jay loved watching the castle. Some days he dreamed about going inside and looking around. It was so beautiful.
 
+![](illustrations/jay-in-the-woods.jpg)
+
 The second thing that Jay had unexpectedly discovered on his walks in
 
-the woods was the presence of a creature that would often appear in one tree or another along the path. When Jay first spotted the creature he was so frightened that he thought his hair might be standing on end. He knew that his teeth were chattering. Once they stopped chattering, the only thing that Jay could think of to say was, “Pppopsicle, ppopsicle!
+the woods was the presence of a creature that would often appear in one tree or another along the path. When Jay first spotted the creature he was so frightened that he thought his hair might be standing on end. He knew that his teeth were chattering. Once they stopped chattering, the only thing that Jay could think of to say was, “Pppopsicle, ppopsicle!"
 
 The creature looked older than anyone Jay had ever seen. He had long boney fingers. Actually his face looked boney, too. He seemed to be a little stooped over and his hair was thick and long and black. Once when Jay had gotten close enough to him to see the color of his eyes. They were like brown diamonds with sparks shooting out the way they had shot out from a diamond he had once seen in a museum. Jay knew, though he didn’t know how he knew, that this was the Wizard Myrddin. He was sure of it.
 

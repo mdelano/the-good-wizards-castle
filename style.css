@@ -9,6 +9,7 @@ h1 {
 
 h2 {
   color:#333333;
+  font-style: italic;
 }
 
 
@@ -27,4 +28,13 @@ h5 {
 p {
   color: #1a1a1a;
   line-height:200%;
+}
+
+img {
+   border:2px solid #d3d3d3;
+}
+
+.pagebreak
+{
+	page-break-after: always;
 }
