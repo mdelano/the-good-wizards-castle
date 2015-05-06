@@ -1,21 +1,38 @@
 #Chapter 13#
 ##Christmas Day Merriment for All!##
 
+<div class="pagebreak"></div>
+
+![](illustrations/ice-skating-1.jpg)
+
 Oscar said that before he and Jay could go out they had to do some work to prepare for their guests. He wanted Jay to know that he had bought sleds and skates for all of the kids, and even for the nuns, so there were fun things to look forward to, after the preparation was done. He said he needed Jay to help him set the table for the ten children, the two nuns and Jay and Oscar and a few more special friends. Then they would get the turkey in the oven and prepare the vegetables and even bake a cake.
 
 Phew, Jay thought. That sounded like a lot of things he didn’t know how to do. Oscar helped him with the table setting and showed him how to prepare the turkey. Once it was baking he showed Jay how to prepare the vegetables and then they set out to bake two cakes. It all seemed to be easier than Jay thought, and lots of fun.
 
 Once that was done and the cakes were put in to bake Oscar told Jay that he had one more surprise. He had asked the owner of the farm that was near the castle if he could bring his wagon over. The two Clydesdale horses that he owned pulled his wagon. Mr. Eves said that he would love to do that.
 
+<div class="pagebreak"></div>
+
+![](illustrations/jay-sleding.jpg)
+
 Sure enough, right on time, Oscar and Jay heard the jingling of the bells that the horses wore and the wagon, pulled by the beautiful horses, came down the road towards the castle. The dogs barked and greeted Mr. Eves. Oscar asked Mr. Eves if he would give Oscar and Jay and the dogs a ride down the logging road to the pond and the hill where they all would skate and sled. He said he would love to do that so Jay and Oscar and the dogs all hopped into the wagon.
 
 Off they went through the snowy woods with the sun shining down on all. Oscar had brought shovels so they could clear the snow off the pond. Once they arrived Oscar and Mr. Eves and Jay all worked to shovel off the pond. As they worked they saw a family of deer run by. What they didn’t see was that some of the owls and some of the wolves were watching just to make sure everyone was safe. Besides that, they simply wanted to share in the merriment. After all, it was Christmas! They shoveled and shoveled until the pond was cleared. Jay watched the magnificent Clydesdale horses. He liked the way they held their heads high, as though they were proud of themselves. He thought that he would try to make sure he did that, too, and remembered not only to be proud for that would cause him to work to be kind and caring towards himself. Besides that, he just couldn’t listen hard enough to the bells on the horses and the sleigh. The sounds were filled with joy!
+
+<div class="pagebreak"></div>
+
+![](illustrations/dog-watch-sleding.jpg)
+
 
 Soon it was time to return to the castle to await the nuns and the children. No sooner had they arrived than two cars pulled up and the children all spilled
 
 out. Oscar had them come into the castle and see the tree. Then he told them to find their presents. Everyone was excited. Even the Sisters had new skates to wear and a sled of their own! After some quick snacks they squeezed into Mr. Eves’ huge wagon all covered with bells and pulled by horses that could weigh as much as two thousand pounds and headed off to the pond. Oscar tied all the sleds on to the back of the wagon, and it was a small Christmas miracle that they held and everything and everyone arrived in one piece! Some children wanted to skate and some wanted to slide. Choices were made and the sun shone down on all. Those who had never skated before received a lesson from Oscar and Mr. Eves and the Sisters helped everyone to take turns sliding. The snow was just crusty enough to make the sledding perfect. And the sun shone down on all.
 
 As Snowy and Merlin began to wrestle with each other in the snow, the two puppies they had met on the beach came hurtling along to see what was happening and joined in to play with Snowy and Merlin. “They must have heard us barking. This is wonderful. We can have our own party with the puppies, Spirit and Dickon!” exclaimed Snowy. Dickon jumped on Spirit and Spirit jumped on all of the dogs. Happy barks could be heard through the crystal air.
+
+<div class="pagebreak"></div>
+
+![](illustrations/horse.jpg)
 
 In the stone cottage, on the other side of the castle woods, Rose thought she heard barking. She went to open the door to hear better and sure enough, she could tell some of the barks belonged to Spirit and Dickon. “What a perfect Christmas. Even the dogs are having great fun. I hope they found their puppy friends in the woods,” she said.
 

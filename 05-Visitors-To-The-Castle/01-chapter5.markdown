@@ -1,6 +1,9 @@
 #Chapter 5#
 ##Visitors to the Castle - Whoooo Hooooo##
 
+<div class="pagebreak"></div>
+![](illustrations/look-cat.jpg)
+
 After everyone else was asleep, Midnight Sky lay awake. He had gotten off of the chair and was on the rug by the fireplace. Fire still crackled in the fireplace. Midnight Sky loved the heat and he also liked the quiet.
 
 Silent Midnight Sky was a watcher. He was very cautious about people and animals that he didn’t know. Tonight Sky was watching the owl. He wasn’t sure what he thought about such a large bird. The owl seemed to be sleeping soundly after having his wing bandaged.
@@ -13,9 +16,11 @@ For quite a while Sky sat quietly watching, and watching and watching the owl. A
 
 He wasn’t sure he wanted to do this. “I must awaken the owl, but what if I do and he tries to hurt me? The owl has a huge beak! Maybe I should just do nothing. Oh, dear. No, I must be brave. I must help our visitor the owl and all of the other owls who must also be frightened without their friend and leader.” The yellow pairs of eyes just kept watching and watching. The tree looked like a tree hung with Christmas tree lights.
 
-“Courage," he said to himself. "This is important and it must be done. You
+![](illustrations/suspect-owl.jpg)
 
-must take a risk.” So very gingerly and slowly, ever so slowly, he reached his paw out (claws in of course) and touched Feather on his head. The owl slept on. Then he touched him again, and then once more. Feather stirred and opened first one yellow eye and then the other. He looked startled and a little afraid. After all, he had never seen Midnight Sky up close before and he was in a strange place and he was hurt. Sky stared back and tried to stay very still so that the owl would not be afraid. He didn’t know what to do next. “I am afraid," Sky said, his paws trembling. "The owl is different from me but I think I can trust him. I must. How am I going to let the owl know that he has visitors outside if I keep thinking about being afraid? I am just going to stick my wet nose upon the window and never move it until the owl, too, looks outside.” By the time his breath started to fog up the window, the owl looked.
+“Courage," he said to himself. "This is important and it must be done. You must take a risk.” So very gingerly and slowly, ever so slowly, he reached his paw out (claws in of course) and touched Feather on his head. The owl slept on. Then he touched him again, and then once more. Feather stirred and opened first one yellow eye and then the other. He looked startled and a little afraid. After all, he had never seen Midnight Sky up close before and he was in a strange place and he was hurt. Sky stared back and tried to stay very still so that the owl would not be afraid. He didn’t know what to do next. “I am afraid," Sky said, his paws trembling. "The owl is different from me but I think I can trust him. I must. How am I going to let the owl know that he has visitors outside if I keep thinking about being afraid? I am just going to stick my wet nose upon the window and never move it until the owl, too, looks outside.” By the time his breath started to fog up the window, the owl looked.
+
+![](illustrations/let-me-in-owl.jpg)
 
 As Feather looked out the window, he jumped a tiny bit and let out a huge sigh. The darkness of the night had been lit up by the owls many, many pairs of yellow eyes. “I cannot believe it. The whole parliament of castle woods owls must be in that tree. They have come looking for me,” said Feather with amazement. “How could they have found me? I know, I know," he stammered in his surprise. "The white wolves must have been watching over me. They watch out for all of us on behalf of the wizard.”
 

@@ -1,3 +1,7 @@
+@page {
+    margin: 2em;
+}
+
 body {
   font-family: "Helvetica", "Sans Serif";
   font-size:1.25em;
@@ -30,11 +34,18 @@ p {
   line-height:200%;
 }
 
-img {
-   border:2px solid #d3d3d3;
+.figure {
+   margin: auto;
+   vertical-align: middle;
 }
 
 .pagebreak
 {
 	page-break-after: always;
+}
+
+div.container {
+   min-height: 10em;
+   display: table-cell;
+   vertical-align: middle;
 }

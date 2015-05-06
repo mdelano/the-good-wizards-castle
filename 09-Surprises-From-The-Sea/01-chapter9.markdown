@@ -1,6 +1,10 @@
 #Chapter 9#
 ##Surprises from the Sea While Waiting for Christmas Day##
 
+<div class="pagebreak"></div>
+
+![](illustrations/viking.jpg)
+
 Everyone was still waiting for Christmas to come. Sometimes it just it just seemed to take forever. Snowy and Merlin were no exception. They couldn’t wait to see Jay and how happy he would be with this special Christmas. It was a beautiful day. The sky was bright blue with just a few fluffy white clouds that blocked out bits of the sun. There was no falling snow.
 
 Oscar was working on some medical reading after he had first worked with the owl to help him strengthen his wing. When the owl did his exercises Oscar and he would go to the castle's back workroom. The owl had become so calm around Oscar that he would sit on Oscar’s shoulder and he would walk him there. Then Oscar would put the owl on a high bench and he would fly the short distance to where Oscar stood and land on his shoulder. It was so exciting to watch, especially since the owl seemed to be gaining strength even faster than Oscar had hoped. Often Snowy and Merlin would watch happily but today all they could think of was playing outside. It was such a brisk and clear day—too nice to be inside. They let themselves out the dog door that Oscar had installed for them.
